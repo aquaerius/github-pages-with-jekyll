@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bienvenido a nuestro blog
 
-I'm glad you are here. I plan to talk about ...
+Me alegro de saludarte. Hablaremos de medicina tibetana.
